@@ -1,0 +1,1 @@
+There are no tutorial and lecture in W6 , it is a midterm test
